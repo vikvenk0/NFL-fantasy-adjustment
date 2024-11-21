@@ -1,0 +1,1 @@
+# NFL-fantasy-adjustment
